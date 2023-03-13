@@ -1,4 +1,4 @@
-## <b>Oii eu sou Luiz Felipe apaixonado por tecnologia e cursando Engenharia de Software</b> *!!*
+## <b>Oii eu sou Luiz Felipe apaixonado por tecnologia e atualmente Engenharia de Software</b> *!!*
 
 
 
